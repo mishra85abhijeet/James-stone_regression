@@ -1,1 +1,0 @@
-# James-stone_regression
